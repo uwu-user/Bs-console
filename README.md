@@ -53,7 +53,7 @@ Demo version v1.0
 
 --- 
 
-» ❒ | If you have a suggestion - Dm Unknown_ #7004
+» ❒ | If you have a suggestion - Dm Unknown_#7004
 bye :3!
 
 ---
